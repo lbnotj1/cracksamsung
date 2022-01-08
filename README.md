@@ -1,0 +1,2 @@
+# cracksamsung
+unlock samung 
